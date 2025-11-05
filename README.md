@@ -3,7 +3,7 @@
 ### ─··✦
 ##### - Oliver / Kin names (Matthias, Frederick)
 ###### - INFP 4w5 (458)
-###### - I like history and mythology, light academia oe ouji fashion/aesthetic, arts & culture, puppets, fantasy, and i LOVE LOVE LOVE art history
+###### - Ask me about art history
 ### ─··✦
 ###### - W2i as im often offtab or busy but c + h freely !
 ##### - not only am I very introverted but I have bpd and emotional dyregulation so if i dont seem to cheerful or interactive it's because I am drained... do not take it personally. please do not be afraid of me though, I try to remain friendly !

@@ -3,7 +3,7 @@
 ### ─··✦ ᴀʙᴏᴜᴛ ᴍᴇ
 ##### - Oliver / Kin names (Matthias, Frederick)
 ###### - INFP 4w5 (458)
-###### - 19 y/o
+###### - 19 y/o (2006/09/28)
 ###### - Ask me about art history
 ### ─··✦ ᴘᴏɴʏᴛᴏᴡɴ
 ###### - W2i as im often offtab or busy but c + h freely ! 
